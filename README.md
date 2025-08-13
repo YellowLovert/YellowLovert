@@ -1,9 +1,3 @@
-tysmmm 🥹🥹🥹🥹
-<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/bfb4a3d2-134b-42fa-85cc-633748abc446" />
-img by the number one aroace luxybeez
-(look down for info
-
-
 Me rn (w/o that fucking fatass agasa
 ![image](https://github.com/user-attachments/assets/dcfa2db0-5d4f-49a9-8a9a-7a0f3ad51d35)
 
