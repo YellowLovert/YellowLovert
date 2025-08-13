@@ -3,7 +3,7 @@ Me rn (w/o that fucking fatass agasa
 
 wsg it’s sherry, you can call me that 🤤🤤🤤
 im absolute fictosexual/romance nd bisexual, pls dontsteal my emoji combos 😭😭🤤🥺🥺😢😢✌️✌️
-Prob will make a rentry, patreon and more but stay curious                                                                          No copying and inspo pls 😭😭😭😢😢
+Prob will make a rentry, patreon and more but stay curious                                                                          No copying and inspo pls 😭😭😭😢😢 fun fact im the peepee person in your atabook
 
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/44111bf1-3448-4da6-a45c-ed5957d0c5bd" />
 
