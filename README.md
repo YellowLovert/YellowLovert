@@ -11,6 +11,6 @@ Prob will make a rentry, patreon and more but stay curious                      
 
 @ITAMIO @YourLocalSimpos @R0TT3NH3ART @INUZUKA-KIBAA @cursemarked @cry-of-fear @TheRealShinichi @TheIllusionistmagician  @shinobiyaoi @5asuke @KAKASHI-HATAKE @POISONOUS-LOVE @dontcopyskins 
 
-Yellow is MINE. mine mine mine mine mine mine mine ALL MINE. I am the only owner of all the yellow in the universe no one else ![image](https://github.com/user-attachments/assets/c385bc30-0841-4503-95d5-f1f1c19165dc) ![image](https://github.com/user-attachments/assets/7e4237d7-569b-40f8-a1a8-ece6b5fd9835) ![image](https://github.com/user-attachments/assets/c0bfc3d0-4cc6-44c6-a18f-17082392d379)
+Yellow is MINE. mine mine mine mine mine mine mine ALL MINE. I am the only owner of all the yellow in the universe no one else ![image](https://github.com/user-attachments/assets/c385bc30-0841-4503-95d5-f1f1c19165dc) ![image](https://github.com/user-attachments/assets/7e4237d7-569b-40f8-a1a8-ece6b5fd9835) ![image](https://github.com/user-attachments/assets/c0bfc3d0-4cc6-44c6-a18f-17082392d379) 
 i like orange, blue and neon colors ig
 thats all thx 
